@@ -4,6 +4,8 @@
 - 📫 This is my email: alanpinon32@gmail.com
 - I like videogames 🎮, rock music (hard rock, prog rock & heavy metal) 🎸 and soccer ⚽
 
+--------- --------- --------- --------- --------- --------- --------- --------- --------- --------- --------- --------- 
+
 - 👋 Hola, soy @AlanPinhon. Soy Mexicano, Diseñagod Gráfico y Desarrollador Web en peoceso
 - 👀 Mi interes es aprender todo lo relacionado al desarrollo web
 - 🌱 Actualmente estoy aprendiendo HTML, CSS, JavaScript y React
