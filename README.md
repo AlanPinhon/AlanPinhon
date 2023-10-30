@@ -1,4 +1,5 @@
-![Banner Twitter AP 23 Logo Nvo Negro](https://github.com/AlanPinhon/AlanPinhon/assets/74801980/6ef50a69-28cc-4496-a5c1-9b684c28afb3)
+![Banner Twitter AP Nov 23 Rojo](https://github.com/AlanPinhon/AlanPinhon/assets/74801980/a4a29d31-a529-428d-9b3c-d01d600cfcdf)
+
 
 - 👋 Hi, I’m @AlanPinhon. I'm from México and i'm a graphic designer and future web developer
 - 👀 I’m interested in learning everything related to web development, animation and video edit
