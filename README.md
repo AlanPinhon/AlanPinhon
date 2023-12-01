@@ -1,4 +1,5 @@
-![Banner Twitter AP Nov 23 Rojo](https://github.com/AlanPinhon/AlanPinhon/assets/74801980/a4a29d31-a529-428d-9b3c-d01d600cfcdf)
+![Banner Twitter AP Dic 23 Verde](https://github.com/AlanPinhon/AlanPinhon/assets/74801980/7132036b-f5a5-47c3-ba2e-6e9453e34765)
+
 
 
 - 👋 Hi, I’m @AlanPinhon. I'm from México and i'm a graphic designer and future web developer
