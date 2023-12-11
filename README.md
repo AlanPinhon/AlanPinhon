@@ -1,4 +1,5 @@
-![Banner Twitter AP Dic 23 Verde](https://github.com/AlanPinhon/AlanPinhon/assets/74801980/7132036b-f5a5-47c3-ba2e-6e9453e34765)
+![Banner Twitter AP Dic 23 Bco](https://github.com/AlanPinhon/AlanPinhon/assets/74801980/5635f888-2486-4d75-9cc0-c317198aacd7)
+
 
 
 
