@@ -1,6 +1,4 @@
-![Banner Twitter AP Dic 23 Rojo](https://github.com/AlanPinhon/AlanPinhon/assets/74801980/cf9bd338-1bca-4b74-85ae-a6051942ecd5)
-
-
+![Banner AP 2024](https://github.com/AlanPinhon/AlanPinhon/assets/74801980/daaa8b1e-a3e8-46eb-a9d0-1031b1624e7f)
 
 
 
