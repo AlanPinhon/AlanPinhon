@@ -1,4 +1,5 @@
-![Banner Twitter AP 32](https://github.com/AlanPinhon/AlanPinhon/assets/74801980/1cbdeb27-b81d-4cf6-99b9-d899b00e500c)
+![Banner Twitter AP 2024](https://github.com/user-attachments/assets/3479978b-b98e-4696-b8ab-3f3fa9b1c395)
+
 
 
 
