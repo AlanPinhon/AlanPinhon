@@ -1,4 +1,4 @@
-![Banner Twitter AP Nov 24](https://github.com/user-attachments/assets/139083d8-f468-425b-a9f3-4c71efdc3324)
+![Banner AP 2025](https://github.com/user-attachments/assets/609c685b-72de-415b-91fc-b6b2d40a9638)
 
 
 
